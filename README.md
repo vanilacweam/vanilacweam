@@ -1,0 +1,33 @@
+# **[ Most of Cream / Cupcake's info can be found on the pronoun.cc page on my account (PikoPikoHammer), but will still leave stuff here just incase you come across this first. :3 ]
+
+Cream's little age is 3-4 years old, so a VERYYY young child, please be mindful with what you say to her, most things she may not understand, or some things might scare her. 
+Cream usually appears when something bad happens, so interact with A LOT of care! There will be the occasional time where she's there just because she wants to be!!
+
+
+Please avoid :
+Any mentions of cream's mother, Vanilla.
+ - She doesn't know where her mother is, which is very scary for her, and if reminded can cause her to panic without her mother :(
+
+Any mentions of EXE's / EXE games...
+- It's already bad enough that's she's in them. It scares her a lot :( [There are VERY specific Exe's she'll be around but that's different.. Coughs]
+
+Any mentions of school (UNLESS she brings it up herself)
+- She doesn't like school, especially since the one we go to is NOTTT at her level at ALLLL..
+
+ANY MENTIONS OF SOMEONE NAMED HALINA / ELLIOT. 
+- PLEASE NO IT SNAPS US RIGHT OUT OF LITTLESPACE.
+
+Any negative emotion DIRECTED TOWARDS her. (Yelling [negative caps lock], being angry at her)
+- Will make her sad, try to talk to her gently if she does something wrong :(
+
+Vegetables.
+- Cream does not like vegetables. UNLESS it's a carrot. We love carrots around here!! At least she does. Perosnally I don't like carrorts that much but this isn't about me!!!
+
+Reminding her about actual age (18)
+- Shhhh let the girl exist in peace!!!!!!
+
+----
+Cream does NOT speak VERBALLY at all, but when it comes to typing she'll do her own thing! BUT, a lot of the time she's most non-scribal, instead shows her thoughts through emojis or actions!!
+VERY sleepy. Can and WILL fall asleep like 1 minute into being regressed 💔
+
+If there are any questionns, please try to ask me (Amy!!) since cream cant exactly answer for herself . :3 
